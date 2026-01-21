@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding & stuff
 - 🌱 I’m currently learning everything
 - 💞️ I’m looking to collaborate on anything
-- 📫 How to reach me: discord (1aerix)
+- 📫 How to reach me: discord (idkaerix)
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i'm funny
 
